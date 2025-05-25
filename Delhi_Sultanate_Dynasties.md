@@ -255,6 +255,3 @@
 | Sayyid  | 1414–1450 | Khizr Khan            | Mubarak Shah         | Weak rule, transitional phase         |
 | Lodi    | 1451–1526 | Bahlol Lodi           | Sikandar Lodi        | Last Sultanate, defeated by Babur     |
 
----
-
-Would you like **MCQs or answer-writing practice** based on this now?
